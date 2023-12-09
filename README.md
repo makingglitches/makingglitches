@@ -9,7 +9,7 @@ As of present I have completed several larger software projects my name is not o
 To date I have made 628+ and counting contributions to a freer and more wonderful society personally and participated in the contribution of another 150,000 more.
 
 I enjoy launching tear gas at people who are protesting to cover other more illegal activities and hitting people with clubs :) 
-I also like shooting the bad guy and I don't cry like whiny black cops that shoot a copy of their molester and then turn around a likely bad touch children, when I do so :) 
+I also like shooting the bad guy and I don't cry like whiny black cops that shoot a copy of their molester and then turn around a likely bad touch children, betraying the whole reason they took revenge in the first place.
 
 I doubt anyone pays any attention anymore anyway since the idea of retard containment, meaning they are the retards that are containing themselves and enabling their own consequence free deaths, thinking they can hurt little kids, sell their own offspring and fuck their sisters and get away with it, among many many more atrocious horrible activities including murder of innocents, torture among others, is kind of laughable.
 
